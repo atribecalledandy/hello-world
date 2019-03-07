@@ -1,3 +1,3 @@
 # hello-world
 First experiment. 
-I am 23 learning to code in order to advance my career 
+LBJ just passed MJ on the all time scoring list 
